@@ -1,3 +1,1 @@
-﻿# farm-management
-
 Inácio Souza
