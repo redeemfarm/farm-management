@@ -1,2 +1,1 @@
-Inácio Souza
 - Bianca Gomes
